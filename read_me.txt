@@ -1,0 +1,1 @@
+voir les images pour comprendre tous les démarches 
